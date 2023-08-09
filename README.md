@@ -1,21 +1,30 @@
 # lgbt websites from p0 recommended
+thegay mrgay and other best gay videos websites links share
 
 ## HUNK-CN Gay Videos (bragx)  
-"https://hunkcn.top"  
+"https://hunkcn.top"       
 
-## HUNK-CN Gay Videos (bragx)  
-"https://thegay.us"     
+## HUNK-CH Gay Videos (zeenite)
+"https://hunkch.buzz"
 
-## HUNK-CN Gay Videos (bragx)  
-"https://thegaysex.fun" 
+## MENS-RUN & MENS-RUSH Gay Videos (sexyfatmature)
+"https://mensrun.top"
 
-"https://mrgay.men"     
-"https://quick.gay"     
-"https://must.gay"      
-"https://getup.gay"     
-"https://coffie.gay"    
-"https://let.boats"     
-"https://pin.tattoo"    
-"https://off.boats"     
-"https://soon.quest"    
-"https://hunk.wiki"     
+## MENS-RUN & MENS-RUSH Gay Videos (thetranny)
+"https://mensrun.buzz"
+
+## twink gay videos (xlilith)
+"https://twink.tattoo"
+
+## Twinks Gay Movies (squirting)
+"https://twinks.cfd"
+
+## Twinks Gay Movies (hentai0day)
+"https://twinks.top"
+
+## twinksex gay videos (desiporn)
+"https://twinksex.cfd"
+
+## twinkporn gay videos (twinkporn)
+"https://twinkporn.buzz"
+    
