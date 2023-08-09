@@ -1,7 +1,12 @@
-# thegay websites links from p0
+# lgbt websites from p0 recommended
 
-"https://thegay.lol"    
+## HUNK-CN Gay Videos (bragx)  
+"https://hunkcn.top"  
+
+## HUNK-CN Gay Videos (bragx)  
 "https://thegay.us"     
+
+## HUNK-CN Gay Videos (bragx)  
 "https://thegaysex.fun" 
 
 "https://mrgay.men"     
